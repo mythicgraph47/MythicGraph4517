@@ -1,4 +1,4 @@
-- I’m @MythicGraph4517
+- I’m @MythicGraph47
 - I have been working on quite some projects such as editing, animation and game developing
 - I am from Pakistan 🇵🇰
 - I’m currently learning various fields in computer
